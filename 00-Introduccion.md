@@ -2,7 +2,7 @@
 
 ## Introduccion
 
-### A) Analisis y Critica de las condiciones generales imperantes
+### A) Analisis y critica de las condiciones generales imperantes
 
 #### A.1 Perspectiva frente a las modificacines generales, producto de la naturaleza y alternativas de la guerra
 
